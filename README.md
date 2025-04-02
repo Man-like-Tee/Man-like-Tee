@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Man-like-Tee
-- 👀 I’m interested in Data Analytics
+- 👀 I’m interested in Finance and Data Analytics
 - 🌱 I’m currently learning Data Analytics
 - 💞️ I’m looking to collaborate on projects relating to data
 - 📫 How to reach me - chidiogombagha@gmail.com
